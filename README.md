@@ -1,4 +1,4 @@
-(idk how to make these) I usually follow people who I'd like to talk to or just look cool on this account ^_^
+(idk how to make these) I use this acc to follow people who I'd like to talk to or just look cool ^_^
 
 sign my ata or whisper me, I love making friends and I do my best to match the energy of who I talk to!! ( c+h always welcome)
 
